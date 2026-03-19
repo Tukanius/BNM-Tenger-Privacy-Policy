@@ -1,1 +1,1 @@
-# BNM-Tenger-privacy-policy
+# BNM-Tenger-Privacy-Policy
